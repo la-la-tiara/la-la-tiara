@@ -2,7 +2,7 @@
    
 
 <p align="center">
-<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/blackrose.gifv" img width="20"/>　 ֺ ۪ 　 𓊆 daryℓ 　or　kyℓℯr 𓊇　𓎟𓎡
+<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/blackrose.gifv" img width="20"/>　 ֺ ۪ 　 𓊆 daryℓ  𓊇　𓎟𓎡
 <br>
 　𓂃 ₊　𖥟　hℯ hℯm 𓈒⠀⠀˙ <img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/elipsesbnw.gif" img width="20"/> 　ℯntp 　<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/doodlecigarette.gif" img width="20"/>
   <br>
